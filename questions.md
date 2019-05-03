@@ -32,6 +32,10 @@ Related to: __Six Ways to Make People Like You: Make the other person feel impor
 
 Related to: __Twelve Ways to Win People to Your Way of Thinking: Be sympathetic with the other person's ideas and desires__: People are hungering for sympathy. They want us to recognize all that they desire and feel. If we can sympathize with others, they will appreciate our side as well and will often come around to our way of thinking.
 
+## How can they change? What must they do, and how are these easy to do?
+
+Related to: __Be a Leader: How to Change People Without Giving Offense or Arousing Resentment: Use encouragement. Make the fault seem easy to correct__: If a desired outcome seems like a momentous task, people will give up and lose heart. But if a fault seems easy to correct, they will readily jump at the opportunity to improve. If we frame objectives as small and easy improvements, we will see dramatic increases in desire and success in our employees.
+
 ## What are their Nobler Motives, etc.? How do they see their work and efforts as being for Something Bigger and Important? How have they been working to Do Good?
 
 Related to: __Twelve Ways to Win People to Your Way of Thinking: Appeal to the nobler motives__: Everyone likes to be glorious in their own eyes. People believe that they do things for noble and morally upright reasons. If we can appeal to others' noble motives we can successfully convince them to follow our ideas.
